@@ -1,2 +1,1 @@
-# SQL--iLearn
-Inner Join, Left Join, Right Join, Full Outer Join
+https://www.youtube.com/watch?v=Yh4CrPHVBdE&t=300s
