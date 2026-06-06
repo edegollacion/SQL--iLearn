@@ -7,3 +7,5 @@ https://www.youtube.com/watch?v=K9Y8P3X45kE
 
 Left Anti and Right Anti Join
 https://www.youtube.com/watch?v=9dG63ifH7Pk
+https://www.youtube.com/watch?v=w45w-D1say0
+
